@@ -29,7 +29,7 @@ https://followeran.com/en/free-instagram-followers/
 # @its_gautam_singh_rajput
 # insta:- https://instagram.com/its_gautam_singh_rajput
 # youtube:- https://www.youtube.com/channel/UCQyMu_Jj11SxiMFrBHlsjdw
-# telegram:- t.me/its_gautam_singh_rajput
+# telegram:- https://t.me/its_gautam_singh_rajput
 
 
 
